@@ -9,4 +9,4 @@ Meu nome é Maria Fernanda Setrinski
 ### Você entra em contato comigo por 📫
 
 setrinski.maria@escola.pr.gov.br
-https://tenor.com/pt-BR/view/sunflower-gif-24455865
+
